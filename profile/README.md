@@ -1,12 +1,14 @@
-<h1><a href="https://lesson1.online">CLICK TO PLAY GAME</h1>
-<HR>---
-<H1><a href="https://classroom-66.pages.dev">CLICK 2 PLAY UNB GAMES</a></H1>
-<HR>---
+
 
 
 **Unblocked Games 76 X: A Gateway to Endless Entertainment**
 
 Unblocked Games 76 X is an online gaming platform that allows players to enjoy a wide variety of games, free from the typical restrictions often imposed in schools, workplaces, or other environments where access to certain websites or content may be limited. It is a part of the broader trend of “unblocked games” that provide entertainment in places where access to gaming websites is usually restricted.
+<h1><a href="https://lesson1.online">CLICK TO PLAY GAME</h1>
+<HR>---
+<H1><a href="https://classroom-66.pages.dev">CLICK 2 PLAY UNB GAMES</a></H1>
+<HR>---
+
 
 ### What are Unblocked Games?
 
