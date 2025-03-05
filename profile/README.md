@@ -3,7 +3,7 @@
 
 **Unblocked Games 76 X: A Gateway to Endless Entertainment**
 
-support e-mail@ :  send us to email for report unblocked web sites
+support e-mail@ :  send us email for report unblocked web sites
 
 <b>fhivcgu@gmail.com</b>
 
